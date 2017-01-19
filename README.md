@@ -1,1 +1,0 @@
-# amazayev_js_9-10
